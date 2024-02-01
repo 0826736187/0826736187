@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mphile
-- 👀 I’m interested in leadership
+- 👀 I’m interested in internship
 - 🌱 I’m currently working as a casual
 - 💞️ I’m looking to collaborate on practical things
 - 📫 How to reach me use this email mphilencumisa@gmail.com
